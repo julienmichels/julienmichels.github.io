@@ -1,2 +1,2 @@
 # julienmichels.github.io
-R&amp;D
+Structural Engineering | Researcher | ...
